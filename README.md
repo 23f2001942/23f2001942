@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **shamanthakreddy@gmail.com**
 
-- 👨‍💻 All of my projects are available at **[https://shamanthak-portfolio.vercel.app/](https://shamanthak-portfolio.vercel.app/)**
+- 👨‍💻 All of my projects are available at **[https://shamanthak-reddy-mallu.vercel.app/](https://shamanthak-reddy-mallu.vercel.app/)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
